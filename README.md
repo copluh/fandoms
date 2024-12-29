@@ -1,6 +1,6 @@
 ## 
 <p align="center">
-  the main fandoms that im in
+  the main fandoms that im in are
 
 <p align="center">
   arcane, jet set radio and spiderverse
