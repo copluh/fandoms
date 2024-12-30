@@ -10,7 +10,10 @@
   the main ponies that i use are
 
 <p align="center">
-  ekko, lest, miles morales, prowler, hobie brown
+  ekko, lest, mel, miles morales, prowler and hobie brown
+
+<p align="center"> 
+(all of my ponies are named "- chéri" and have my github connected)
 
 ##
 <p align="center">
