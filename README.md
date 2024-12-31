@@ -13,7 +13,7 @@
   ekko, lest, mel, miles morales, prowler and hobie brown
 
 <p align="center"> 
-(all of my ponies are named "- chéri" and have my github connected)
+(all of my ponies have my github connected)
 
 ##
 <p align="center">
