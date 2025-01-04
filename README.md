@@ -3,14 +3,14 @@
   the main fandoms that im in are
 
 <p align="center">
-  arcane, jet set radio and across the spiderverse
+  arcane, jet set radio, spiderverse and squid game
 
 ## 
 <p align="center">
   the main ponies that i use are
 
 <p align="center">
-  ekko, lest, mel, miles morales, prowler and hobie brown
+  ekko, mel, miles, prowler, hobie and sae-byeok
 
 <p align="center"> 
 (all of my ponies have my github connected)
