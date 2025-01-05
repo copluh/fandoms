@@ -10,7 +10,7 @@
   the main ponies that i use are
 
 <p align="center">
-  ekko, mel, miles, prowler, hobie and sae-byeok
+  ekko, mel, miles, prowler, hobie, sae-byeok and ji-yeong
 
 <p align="center"> 
 (all of my ponies have my github connected)
