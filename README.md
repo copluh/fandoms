@@ -1,13 +1,13 @@
 ## 
 <p align="center">
-$\text{\color{#9E3E3F}the main fandoms that im in are!}$
+$\text{\color{#8D7A75}the main fandoms that im in are!}$
 
 <p align="center">
   arcane, jet set radio, spiderverse, squid game and g&b
 
 ## 
 <p align="center">
-$\text{\color{#3E5582}the main ponies that i use are!}$
+$\text{\color{#8D7A75}the main ponies that i use are!}$
 
 <p align="center">
   ekko, jinx, mel, miles, prowler, hobie, sae-byeok
