@@ -3,7 +3,7 @@
 $\text{\color{#C4A89E}the main fandoms that im in are!}$
 
 <p align="center">
-  arcane, jet set radio, spiderverse, g&b, tvs, etc
+  arcane, across the spiderverse, g&b, etc
 
 ## 
 <p align="center">
