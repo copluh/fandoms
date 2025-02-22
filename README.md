@@ -10,7 +10,7 @@ $\text{\color{#C4A89E}the main fandoms that im in are!}$
 $\text{\color{#C4A89E}the main ponies that i use are!}$
 
 <p align="center">
-  ekko, jinx, mel, miles, prowler, hobie, neeko
+  ekko, jinx, mel, miles, prowler, hobie
 
 <p align="center"> 
 (all of my ponies have my github connected)
