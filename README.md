@@ -3,7 +3,7 @@
 $\text{\color{#C4A89E}the main fandoms that im in are!}$
 
 <p align="center">
-  arcane, across the spiderverse, tlou, etc
+  arcane, across the spiderverse, tlou, dr. house, etc
 
 ## 
 <p align="center">
