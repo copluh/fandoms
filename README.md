@@ -3,7 +3,7 @@
 $\text{\color{#F4F0EB}the main fandoms that im in are!}$
 
 <p align="center">
-  mma / ufc, arcane, atsv, umm icl i forgot the rest
+ MAINLY mma / ufc, arcane, atsv, umm icl i forgot the rest
 
 ## 
 <p align="center">
